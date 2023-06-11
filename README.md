@@ -19,7 +19,9 @@ She didn’t respond, just letting the older man ruffle her hair. At least he ha
 
 
 “....”
+
 “...M..Miharu…”
+
 “Oh! What a cute name.”
 
 He pulled away his hand. 
